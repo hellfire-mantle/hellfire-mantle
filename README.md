@@ -9,9 +9,9 @@
 <br>
 
 <p align="center">
-  hi! I'm Kana. you're probably here from Pony Town. <br><br>
+  hi! I'm Kana. you're most likely here from Pony Town. <br><br>
   I'm mostly silent; not a conversation starter, except around friends (sometimes). <br>
-  though I don't always respond, 👑s & anything else are fine. I don't mind! <br><br>
+  while I don't always respond, 👑s & anything else are fine. I don't mind! <br><br>
   …………………………
 </p>
 
