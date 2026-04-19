@@ -12,7 +12,7 @@
   hi! I'm Kana. you're most likely here from Pony Town. <br><br>
   I'm mostly silent; not a conversation starter, except around friends (sometimes). <br>
   👑s & anything similar are fine. I don't mind! <br><br>
-  usually at the docks now, but you can sometimes find me at the edges of the map (or less crowded areas generally) <br><br>
+  usually at the docks now, but you can sometimes find me at some fandom areas (or less crowded areas generally) <br><br>
   …………………………
 </p>
 
